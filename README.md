@@ -1,1 +1,1 @@
-https://cdn.discordapp.com/attachments/1384011043340161116/1394529305572409345/Brute-Force-instagram-V6.png?ex=6877241f&is=6875d29f&hm=6f4ac312cb4a4686a7fb12f61975f47e0b091aa7fbadc3db35dd510383a498ac&
+https://github.com/vv1ck/Brute-Force-instagram-V6/raw/main/Screenshots/Brute-Force-instagram-V6.png
